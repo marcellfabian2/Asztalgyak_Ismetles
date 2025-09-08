@@ -1,1 +1,1 @@
-# Asztalygyak_Ismetles
+# Asztalgyak_Ismetles
